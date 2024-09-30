@@ -1,1 +1,0 @@
-# Ozone-Bionic-Hand-V1.0
